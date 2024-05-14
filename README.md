@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me: Here (GitHub)
 - 😄 Pronouns: She/her/hers
-- ⚡ Fun fact: Nah
+- ⚡ Fun fact: I'm new, so I look forward to collaborating & your assistance UwU
 
 
 ![Hoang Son's GitHub Streak](https://github-readme-streak-stats.herokuapp.com/?user=babii-rexhahahaha&theme=radical)
